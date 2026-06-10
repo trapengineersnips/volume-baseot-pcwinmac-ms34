@@ -1,4 +1,4 @@
-# 
+# Professional volume-based trading bot extensions for Mac OS | Smart volume-based trading bot extensions for PC Windows. Featuring private key security and token swaps — optimized for maximum performance on every platform.
 
 
 
